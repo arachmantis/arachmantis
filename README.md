@@ -1,5 +1,16 @@
-<p align="center" width="100%"> 
-  <img src="https://64.media.tumblr.com/8ba87c06c6529cb0c692ffc2f24442fc/1707a372e2fb7ddc-f8/s75x75_c1/e66d05b98ce4868466f5a2173136b59f3ededf05.gifv"> WIP <img src="https://64.media.tumblr.com/ed2042e440288b50b38627d62972a984/1707a372e2fb7ddc-e4/s75x75_c1/ba064d89ac560eced5923880dfe980550ae7b30d.gifv"></p>
+# Headhunt Sys
+Bound to spawn area but we'll roam freely 
+> Currently fronting..
+
+
+## <img src="https://64.media.tumblr.com/ade84a60a04c3fd07c14eb314de233d3/76dd44755b8149f1-6c/s250x400/7992a21ab3b2dcd655897e90303955ea7b242c73.gifv" width="8%"> Lisa <img src="https://64.media.tumblr.com/ed2042e440288b50b38627d62972a984/1707a372e2fb7ddc-e4/s75x75_c1/ba064d89ac560eced5923880dfe980550ae7b30d.gifv">
+</p>
+
+<img align="left" src="https://github.com/user-attachments/assets/59bb2171-411d-4314-be9a-02f8497e1ab5" width="200">
+<img align="right" src="https://github.com/user-attachments/assets/4701e741-9b26-4a27-b1d1-859adc9dd6b0" width="200">
+I don't mind the company ^u^ You may sit next to me if you wish but responses will be slow as I am recovering from the flu - A reminder to get yourself vaccinated for my sake! 💊⚕️
+
+
 <!--
 **Align left:**
 <p align="left" width="100%">
