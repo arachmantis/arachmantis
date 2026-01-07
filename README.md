@@ -10,6 +10,8 @@ Bound to spawn area but we'll roam freely
 <img align="right" src="https://github.com/user-attachments/assets/4701e741-9b26-4a27-b1d1-859adc9dd6b0" width="200">
 I don't mind the company ^u^ You may sit next to me if you wish but responses will be slow as I am recovering from the flu - A reminder to get yourself vaccinated for my sake! 💊⚕️
 <br>
+
+<br>
 <div align="right"><i><a href="https://www.youtube.com/watch?v=LgOcy0jr4wQ" target="_blank"> "Oh, I think I'm sick again." </i></div>
 
 
