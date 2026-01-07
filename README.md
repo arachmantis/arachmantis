@@ -3,7 +3,7 @@ Bound to spawn area but we'll roam freely
 > Currently fronting..
 
 
-## <img src="https://64.media.tumblr.com/ade84a60a04c3fd07c14eb314de233d3/76dd44755b8149f1-6c/s250x400/7992a21ab3b2dcd655897e90303955ea7b242c73.gifv" width="8%"> Lisa <img src="https://64.media.tumblr.com/ed2042e440288b50b38627d62972a984/1707a372e2fb7ddc-e4/s75x75_c1/ba064d89ac560eced5923880dfe980550ae7b30d.gifv">
+## <img src="https://64.media.tumblr.com/ade84a60a04c3fd07c14eb314de233d3/76dd44755b8149f1-6c/s250x400/7992a21ab3b2dcd655897e90303955ea7b242c73.gifv" width="13%"> Lisa <img src="https://64.media.tumblr.com/ed2042e440288b50b38627d62972a984/1707a372e2fb7ddc-e4/s75x75_c1/ba064d89ac560eced5923880dfe980550ae7b30d.gifv" width="3%">
 </p>
 
 <img align="left" src="https://github.com/user-attachments/assets/59bb2171-411d-4314-be9a-02f8497e1ab5" width="200">
