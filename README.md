@@ -8,7 +8,7 @@ Bound to spawn area but we'll roam freely
 ## <img src="https://64.media.tumblr.com/acb5fdef47a02bf3ad57aa2355d40bcb/4aba861b54bcd2c5-75/s1280x1920/bfac40f5d667d038f999c95c8455af0585ffd2cd.pnj" width="13%"> Zane <img src="https://64.media.tumblr.com/b40cd8b4c2ad752c00e931ee7359b374/f81e70cf59e91e03-c4/s1280x1920/e66a089d57b86f781048df0bad834336a4e64b02.pnj" width="13%">
 </p>
 
-Either busy with work (full-time one) or I'm experimenting with coding 
+Either busy with work (full-time one) or I'm experimenting with coding. I'm more likely inclined to drink while on PT but there's usually a warning on DN
 
 
 <!-- LISA 
