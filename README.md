@@ -11,6 +11,8 @@ Bound to spawn area but we'll roam freely
 Either busy with work (full-time one) or I'm experimenting with coding. I'm more likely inclined to drink while on PT but there's usually a warning on DN
 <br>
 I do some cardio on the side!! <s>When I'm not bound to my job</s>
+<br>
+More than likely prestiging Skull Merchant if my status has DBD in it
 
 
 <!-- LISA 
