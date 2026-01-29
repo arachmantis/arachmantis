@@ -1,6 +1,6 @@
 # Headhunt Sys
 Bound to spawn area but we'll roam freely 
-> Currently fronting..
+> Currently co-fronting..
 
 
 
@@ -15,7 +15,8 @@ More than likely prestiging Skull Merchant if my status has DBD in it
 <br>
 Digi-Zane acts as a stand-in for me while I'm gone! I'm either sleeping, working, or some other 3rd thing
 
-<!-- LISA
+<hr>
+
 ## <img src="https://64.media.tumblr.com/ade84a60a04c3fd07c14eb314de233d3/76dd44755b8149f1-6c/s250x400/7992a21ab3b2dcd655897e90303955ea7b242c73.gifv" width="13%"> Lisa <img src="https://64.media.tumblr.com/ed2042e440288b50b38627d62972a984/1707a372e2fb7ddc-e4/s75x75_c1/ba064d89ac560eced5923880dfe980550ae7b30d.gifv" width="3%">
 </p>
 
